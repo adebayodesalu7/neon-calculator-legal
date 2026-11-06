@@ -91,7 +91,7 @@ advertising, analytics or cloud sync), this document will be updated and the
 
 ## Contact
 
-Questions about this policy: **<your-support-email@example.com>**
+Questions about this policy: **<adebayodesalu7@gmail.com>**
 
 ---
 
